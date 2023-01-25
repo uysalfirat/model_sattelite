@@ -1,0 +1,2 @@
+# model_sattelite
+2019 TURKSAT MODEL SATTELİTE COMPETİTİON
